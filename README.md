@@ -1,4 +1,4 @@
-![](https://cdn.discordapp.com/attachments/985252043650392105/1090253093268115548/6D571F4B-602A-4145-816C-6C6B6F9D3A33.png)
+![](https://cdn.discordapp.com/attachments/985252043650392105/1090255055178973274/D5549A57-967B-4AA9-9BE7-DD0B8C214CFC.jpeg)
 
 ﹕₊˚ʚ🍰ɞ・SHE % `THEY` . IT *!*
 
